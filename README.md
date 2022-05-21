@@ -1,6 +1,7 @@
 - 👋 YOO!!! i'M advika 
 - 👀 I’m interested in coding
-- 🌱 I’m currently learning and not soo good but I know really good tips for begginner 
+- 🌱 I’m currently learning and not soo good. bUT i'M FINE I guess 
+- I'm just k
 - i'VE made many repositries 
 - you can check them
 - and I'm 12yo
